@@ -4,7 +4,7 @@
 
 Hey Sohail-khan1246!
 
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+Sohail here. I'm done preparing your exercise. Hope you enjoy! 💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
